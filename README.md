@@ -1,0 +1,5 @@
+- 👋 Hi, ich bin Louis und ? Jahre alt
+- 👀 Ich mag es zu Coden und Minecraft zu spielen :)
+- 🌱 Ich lerne zuzeit Python
+- 💞️ Bin Single :(
+- 📫 Wie du mich erreichst zVST#0001
